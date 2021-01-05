@@ -14,8 +14,8 @@
     When it's one need in the night
     One love, we get to share it
     Leaves you baby if you don't care for it
+   
     Did I disappoint you?
-
     Or leave a bad taste in your mouth?
     You act like you never had love
     And you want me to go without
@@ -25,3 +25,9 @@
     We're one but we're not the same
     We get to carry each other, carry each other
     One!
+
+    Have you come here for forgiveness?
+    Have you come to raise the dead?
+    Have you come here to play Jesus?
+    To the lepers in your head
+
