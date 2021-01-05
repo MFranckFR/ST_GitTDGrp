@@ -14,3 +14,14 @@
     When it's one need in the night
     One love, we get to share it
     Leaves you baby if you don't care for it
+    Did I disappoint you?
+
+    Or leave a bad taste in your mouth?
+    You act like you never had love
+    And you want me to go without
+    
+    Well it's too late tonight
+    To drag the past out into the light
+    We're one but we're not the same
+    We get to carry each other, carry each other
+    One!
